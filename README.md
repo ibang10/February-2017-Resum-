@@ -5,6 +5,7 @@
 ***Education***
 #### Masters in Education  
 * University of Washington, Tacoma, Tacoma, WA (2016)
+  * 3.94 GPA
   * Certification in K-8
   * Endorsement in Special Education
   * Implemented and analyzed effectiveness of "The Good Behavior Game" for Master's Reserach Project
