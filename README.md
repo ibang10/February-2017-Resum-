@@ -19,7 +19,8 @@
   ***Professional Experience***
   
 #### Elementary School Teacher 
- * Third grade, Sedro-Woolley School District, Sedro-Woolley, WA (August 2016-Present)  
+ * Special Education Teacher, Sedro-Woolley School District, Sedro-Woolley, WA (June 2017-Present)
+ * Third grade, Sedro-Woolley School District, Sedro-Woolley, WA (August 2016-June 2017)  
  * Kindergarten, Franklin Pierce School District, Tacoma, WA (August 2015-June 2016)  
  * Teacher Intern, Franklin Pierce School District, Tacoma, WA (September 2014-June 2015)  
   * Plan and instruct each subject in a way which makes challenging material comprehensible for children  
