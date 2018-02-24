@@ -18,8 +18,17 @@
 ---
   ***Professional Experience***
   
+#### Special Education Teacher
+ * 4-6 Resource Room, Sedro-Woolley School District, Sedro-Woolley, WA (June 2017-Present)
+  * Develop and mange Individualed Education Plans for 30+ students
+  * Commuicate and collaborate with 9 general education teachers, administrators, specialists, and famillies
+  * Instruct, monitor, and report on 100+ academic and social goals for students
+  * Maintain an equitable and compassionate learning space for diverse learners
+  
+
 #### Elementary School Teacher 
- * Third grade, Sedro-Woolley School District, Sedro-Woolley, WA (August 2016-Present)  
+
+ * Third grade, Sedro-Woolley School District, Sedro-Woolley, WA (August 2016-June 2017)  
  * Kindergarten, Franklin Pierce School District, Tacoma, WA (August 2015-June 2016)  
  * Teacher Intern, Franklin Pierce School District, Tacoma, WA (September 2014-June 2015)  
   * Plan and instruct each subject in a way which makes challenging material comprehensible for children  
